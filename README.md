@@ -227,4 +227,4 @@ Shadow Fight 2 is available as a full free version, including all features and u
 Ready to embark on your epic martial arts journey? **Download Shadow Fight 2 for free now and unleash your fighting spirit!**
 
 ---
-**Last updated:** 2026-11-05 13:35:10 UTC
+**Last updated:** 2026-11-05 20:51:04 UTC
